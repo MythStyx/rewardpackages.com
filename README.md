@@ -1,2 +1,0 @@
-# rewardpackages.com
-rewardpackages.com
